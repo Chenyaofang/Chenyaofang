@@ -1,6 +1,3 @@
-
-Here are some ideas to get you started:
-
 - I'm studying at CJCU.
 - I’m learning in Department of Aviation and Maritime Transportation Management. 
 - I'm in Grade 1B.
