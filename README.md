@@ -5,8 +5,8 @@
 - Reach me with LINE: 484814978 is my ID.
 - Here is my phone number: 0907620019 
 - What I'm thinking about?💭 Walking is tiring.
-- I have a certification for ESG project management in 2024.
+- I had a certification for ESG project management in 2024.
 - I won second place in the team category of the English presentation competition in 2025.
-- I have a certificate related to Greenhouse gases - the carbon footprint of products(ISO 14067 : 2018 Internal Verifier Training Course) in 2026.
+- I had a certificate related to Greenhouse gases - the carbon footprint of products(ISO 14067 : 2018 Internal Verifier Training Course) in 2026.
 - 2 MANY INFORMATION HERE
 --> 
